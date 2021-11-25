@@ -6,7 +6,7 @@
 
 #### keep in touch:
 :point_right: [Facebook](https://www.facebook.com/natthajak.battelfield/)<br>
-:point_right: [Instagram](https://www.instagram.com/iamsingyabut/)<br>
+:point_right: [LinkedIn](https://www.linkedin.com/in/natthajak-singyabut-a68a1721a/)<br>
 
 #### 🧰  Languages and Tools:
 <p align="left">
