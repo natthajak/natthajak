@@ -1,6 +1,6 @@
 <h1 align="center">Hi :wave:, I’m Natthajak Singyabut </h1>
 
-👨‍💻 I'm currenly studying Computer Engineering KKU
+👨‍💻 Software Developer
 
 
 
